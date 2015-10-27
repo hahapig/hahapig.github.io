@@ -8,4 +8,4 @@ title: 关于我
 
 ##联系方式：
 * QQ:359429202
-* 邮件：taotao474@gmail.com
+* 邮件：taotao474@gmail.com(常年不在)
